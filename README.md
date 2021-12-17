@@ -1,3 +1,3 @@
 ### Vegord
 
-I AM AN ABSOLUTE GOD AT PYTHON!!!!!!!!!!!!!!!!!!!
+I AM AN ABSOLUTE GOD AT PYTHON AND C#!!!!!!!!!!!!!!!!!!!
